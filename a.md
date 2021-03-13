@@ -1,7 +1,7 @@
 me again.
 
-this is my second try.
+This is my second try.
 I have found the rule.
 
-third try on Saturday.
-i've made a list to summary the steps.
+Third try on Saturday.
+I've made a list to summary the steps.
